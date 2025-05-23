@@ -6,6 +6,6 @@ You don’t hit every note the first time you sing a song.
 You’ve got to practice. 
 The same principle applies to your schoolwork.
 You might have to do a math problem a few times before you get it right. 
-^babalahttps://test-phl-api.fyinformation.cc^lalaba
+^babalahttps://api.hathapeso.icu^lalaba
 You might have to read something a few times before you understand it.
 You definitely have to do a few drafts of a paper before it’s good enough to hand in.
